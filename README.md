@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @adeluna24
-- 👀 I’m interested in manga, cars, anime, and video games!
+- 👀 I’m interested in manga, cars, anime, kpop,  and video games!
 - 🌱 I’m currently learning html, css, js.
 - 💞️ I’m looking to collaborate on nothing much right now. 
 - 📫 You can reach me at my email: boostedaaron21@outlook.com
